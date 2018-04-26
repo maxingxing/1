@@ -1,2 +1,2 @@
 # 2018-Wonderful-Football-App
-Wonderful football is a very interesting palm football App, you can choose the country you support as your team, only need to slide the finger to control the football, shot into the opponent's goal can get one point, three sets of the winner, hurry to join the bar! It's just here!
+It's better to shoot a soccer game and challenge the accuracy of your fingers. All kinds of tricky angles are good for you. The global scoreboard is waiting for you to challenge.
